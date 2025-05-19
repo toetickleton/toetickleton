@@ -12,7 +12,7 @@
 
 ২ 🍵   　﹒ he　◞  　him　   !!
 
-✦　﹒५  hiya! my name is mors, i am a 2d illustrator, animator and amateur rigger! i'd love to be your friend, or just talk, really, so please feel free to interact with me!! i am brazilian, neurodivergent and transmasc, and i'd consider myself a pretty chill little guy. i dont tend to make enemies but i block freely so please, if i make you uncomfortable, just do the same!! if you would like to see my pronouns page, click [here!](https://en.pronouns.page/@morscod3) 
+✦　﹒५  hiya! my name is mors, i am a 2d illustrator, animator and amateur rigger! i'd love to be your friend, or just talk, really, so please feel free to interact with me!! i am brazilian, neurodivergent and transmasc, and i'd consider myself a pretty chill little guy. i dont tend to make enemies but i block freely so please, if i make you uncomfortable, just do the same!! if you would like to see my pronouns page, click [here!](https://en.pronouns.page/@morsabyte) 
 
 <p align="center">
     <img src="https://file.garden/ZwCpeSoEK1ZwoQvU/fuc">
@@ -24,7 +24,7 @@
 
   ﹒⤿  links 📗  ୯ 
 
-[୬ ◟strawpage﹒ ](https://morscod3.straw.page) a magical place where you can send me drawings and etc!
+[୬ ◟strawpage﹒ ](https://morsabyte.straw.page) a magical place where you can send me drawings and etc!
 
 [﹒carrd ‹໒](https://morscod3.carrd.co) learn more about me including some fun facts and colorful stamps!!
 
@@ -32,4 +32,4 @@
 
 [﹒dni ‹໒](https://morscod3.carrd.co/#dni) a guide on who should or should not interact with me!
 
-[୬ ◟pronounspage﹒ ](https://en.pronouns.page/@morscod3) my pronouns, preferred names, etc
+[୬ ◟pronounspage﹒ ](https://en.pronouns.page/@morsabyte) my pronouns, preferred names, etc
