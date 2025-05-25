@@ -29,4 +29,5 @@
 
 [୬ ◟pronounspage﹒ ](https://en.pronouns.page/@morsabyte) my pronouns, preferred names, etc
 
-i wish i had more links, n i'll be working on that soon, so don't consider this done!!
+
+i'll be adding more soon, so don't consider this done!!
