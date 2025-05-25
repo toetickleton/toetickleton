@@ -25,7 +25,7 @@
 
 [୬ ◟strawpage﹒ ](https://morsabyte.straw.page) a place where you can send me drawings n etc! kinda a wip :]
 
-[﹒anon. venting ‹໒](https://happylittletrees.straw.page) completely anonymous venting page where i can give ya advice for the tough times.
+[﹒anon. venting ‹໒](https://happylittletrees.straw.page) completely anonymous venting page where i give ya advice for tough times.
 
 [୬ ◟pronounspage﹒ ](https://en.pronouns.page/@morsabyte) my pronouns, preferred names, etc
 
