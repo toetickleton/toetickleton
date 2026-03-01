@@ -11,7 +11,8 @@
 
 ২ 🐚   　﹒ he　◞   they 　 !! 🍭
 
-✦　﹒५  hiya! my name is mors, i am a 2d illustrator, animator and amateur rigger! i'd love to be your friend, or just talk, really, so please feel free to interact with me!! i am brazilian, neurodivergent and transmasc, and i'd consider myself a pretty chill little guy /silly. i dont tend to make enemies but i block freely so please, if i make you uncomfortable, just do the same!! if you would like to see my pronouns page, click [here!](https://en.pronouns.page/@morsabyte) love you! /p
+✦　﹒५  hiya! my name is maru, but you may call me mors(a) or sigewinne as well. i'm 17, if that makes you uncomfortable, it's always okay to block me! i draw, animate, rig... just about whatever creativity-related hijinks i try out in the moment! i'd love to be your friend, or just talk, really, so please feel free to interact with me!! i neurodivergent (undergoing medical diagnosis), i'm a [sigewinne](https://genshin-impact.fandom.com/wiki/Sigewinne) [kinnie](https://alterhumanity.fandom.com/wiki/Fictionkin), i'm from brazil. i'm transgender (altho i rather go unlabled, i relate most to the description of [genderfaun](https://gender.fandom.com/wiki/Genderfaun).) i don't make enemies but i block freely so please, if i make you uncomfortable, DO block me as well. if you would like to see my pronouns page, click [here!](https://en.pronouns.page/@marupudin) 
+✦　﹒ィ although i love sigewinne, i don't consider myself a part of the gennshin impact fandom, due to its toxic nature. but fans of genshin who understand that, feel free to interact as usual! media i enjoy include but are not limited to: deltarune, madoka magica, vocaloid (in general), TADC, NSO, ehhh etc. now that i think about it havent played games or watched stuff in a while i can't lie.
 <p align="center">
     <img src="https://file.garden/ZwCpeSoEK1ZwoQvU/fuc">
 </p>
@@ -24,9 +25,4 @@
 
 [୬ ◟strawpage﹒ ](https://morsabyte.straw.page) a place where you can send me drawings n etc! kinda a wip :]
 
-[﹒anon. venting ‹໒](https://happylittletrees.straw.page) completely anonymous venting page where i give ya advice & stuff.
-
-[୬ ◟pronounspage﹒ ](https://en.pronouns.page/@morsabyte) my pronouns, preferred names, etc
-
-
-i'll be adding more soon, so don't consider this done!!
+[﹒pronounspage ‹໒]([https://en.pronouns.page/@morsabyte](https://en.pronouns.page/@marupudin)) my pronouns, preferred names, etc
