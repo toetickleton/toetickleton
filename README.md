@@ -28,4 +28,4 @@
 
 [୬ ◟strawpage﹒ ](https://morsabyte.straw.page) a place where you can send me drawings n etc! kinda a wip :]
 
-[﹒pronounspage ‹໒]([https://en.pronouns.page/@morsabyte](https://en.pronouns.page/@marupudin)) my pronouns, preferred names, etc
+[﹒pronounspage ‹໒](https://en.pronouns.page/@marupudin)my pronouns, preferred names, etc
