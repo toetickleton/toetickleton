@@ -16,7 +16,7 @@
 ✦　﹒⤿ i don't like to refer to it as my DNI list because i am open to have a healthy conversation with anyone, but if you fit [basic DNI criteria](https://basedni.straw.page/), i will be wary of you/soft block if i find out
 
 <div>
-  <img align="left" width="30%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/eelugiee">
+  <img align="left" width="20%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/eelugiee">
 </div>
 
   ﹒🌷⤿  links  🫧 ୯ 
