@@ -12,14 +12,15 @@
 ✦　﹒ィ although i love sigewinne, i don't consider myself a part of the gennshin impact fandom, due to its toxic nature. but fans of genshin who understand that, feel free to interact as usual! media i enjoy include but are not limited to: deltarune, madoka magica, vocaloid (in general), TADC, NSO, ehhh etc. now that i think about it havent played games or watched stuff in a while i can't lie.
 
 ✦　﹒⤿ i don't like to refer to it as my DNI list because i am open to have a healthy conversation with anyone, but if you fit [basic DNI criteria](https://basedni.straw.page/), i will be wary of you/soft block if i find out
-
-<img class="img_deg" width="20%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/tumblr_270da78811c22b9e7493d5df2b5d56f1_8a7f46dc_100.gif">
 <style type="text/css">
   img.deg
   {
     float:right;
   }
   </style>
+
+<img class="img_deg" width="20%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/tumblr_270da78811c22b9e7493d5df2b5d56f1_8a7f46dc_100.gif">
+
 <div>
   <img align="left" width="30%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/forg.png">
 </div>
