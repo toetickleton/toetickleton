@@ -1,11 +1,11 @@
 
 <p align="center">
-<img align="center" width="50%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/tthingy">
+<img align="center" width="70%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/tthingy">
 </p>
 
-  　　﹒೨ 💉 ۫ ﹒　maru / mors ﹒　ィ 💗
+  　　  　　　　﹒೨ 💉 ۫ ﹒　maru / mors ﹒　ィ 💗
 
-২ 🐚   　﹒ he　◞   they 　 !! 🍭
+  　　　২ 🐚   　﹒ he　◞   they 　 !! 🍭
 
 ✦　﹒५  hiya! my name is maru, but you may call me mors(a) or sigewinne as well. i'm 17, if that makes you uncomfortable, it's always okay to block me! i draw, animate, rig... just about whatever creativity-related hijinks i try out in the moment! i'd love to be your friend, or just talk, really, so please feel free to interact with me!! i neurodivergent (undergoing medical diagnosis), i'm a [sigewinne](https://genshin-impact.fandom.com/wiki/Sigewinne) [fictionkin](https://alterhumanity.fandom.com/wiki/Fictionkin), i'm from brazil. i'm transgender (altho i rather go unlabled, i relate most to the description of [genderfaun](https://gender.fandom.com/wiki/Genderfaun).) i don't make enemies but i block freely so please, if i make you uncomfortable, DO block me as well. if you would like to see my pronouns page, click [here!](https://en.pronouns.page/@marupudin) 
 
