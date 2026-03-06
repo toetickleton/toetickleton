@@ -21,6 +21,6 @@
 
   ﹒🌷⤿  links  🫧 ୯ 
 
-[୬ ◟strawpage﹒](https://sige.straw.page)　a place where you can send me drawings n etc! kinda a wip :]
+[୬ ◟strawpage﹒](https://sige.straw.page)　a piece of myself, and also more about me. kinda like my bedroom :]
 
 [₊﹒pronouns ‹ ໒  ](https://en.pronouns.page/@marupudin)　my pronouns page! contains terms which i like to be called by.
