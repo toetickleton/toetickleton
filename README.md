@@ -1,6 +1,6 @@
 
 <div>
-  <img align="right" width="25%" src="">
+
 </div>
 
 <p align="center">
