@@ -23,4 +23,4 @@
 
 [୬ ◟strawpage﹒ ](https://sige.straw.page) a place where you can send me drawings n etc! kinda a wip :]
 
-[﹒﹒pronouns ‹ ໒  ](https://en.pronouns.page/@marupudin) 　my pronouns, preferred names, etc
+[₊﹒pronouns ‹ ໒  ](https://en.pronouns.page/@marupudin) 　my pronouns, preferred names, etc
