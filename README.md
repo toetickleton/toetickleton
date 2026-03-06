@@ -4,7 +4,7 @@
 </div>
 
 <p align="center">
-    <img src="https://file.garden/ZwCpeSoEK1ZwoQvU/tumblr_270da78811c22b9e7493d5df2b5d56f1_8a7f46dc_100.gif">
+    <img src="https://file.garden/ZwCpeSoEK1ZwoQvU/tumblr_c62a452d4d58863193a04a7e37263bea_b8854ec9_400.gif">
 </p>
 
   　　﹒೨ 💉 ۫ ﹒　maru / mors ﹒　ィ 💗
@@ -17,7 +17,7 @@
 
 ✦　﹒⤿ i don't like to refer to it as my DNI list because i am open to have a healthy conversation with anyone, but if you fit [basic DNI criteria](https://basedni.straw.page/), i will be wary of you/soft block if i find out
 <p align="center">
-    <img src="https://file.garden/ZwCpeSoEK1ZwoQvU/fuc">
+    <img src="https://file.garden/ZwCpeSoEK1ZwoQvU/tumblr_270da78811c22b9e7493d5df2b5d56f1_8a7f46dc_100.gif">
 </p>
 
 <div>
