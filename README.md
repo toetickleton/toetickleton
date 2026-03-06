@@ -1,8 +1,8 @@
+
 <p align="center">
-<div>
-    <img align="center" width="50%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/tthingy">
-</div>
+<img align="center" width="50%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/tthingy">
 </p>
+
   　　﹒೨ 💉 ۫ ﹒　maru / mors ﹒　ィ 💗
 
 ২ 🐚   　﹒ he　◞   they 　 !! 🍭
