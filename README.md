@@ -4,7 +4,7 @@
 </div>
 
 <p align="center">
-    <img src="[https://file.garden/ZwCpeSoEK1ZwoQvU/AGGGGGHHHHH](https://file.garden/ZwCpeSoEK1ZwoQvU/tumblr_270da78811c22b9e7493d5df2b5d56f1_8a7f46dc_100.gif)">
+    <img src="https://file.garden/ZwCpeSoEK1ZwoQvU/tumblr_270da78811c22b9e7493d5df2b5d56f1_8a7f46dc_100.gif">
 </p>
 
   　　﹒೨ 💉 ۫ ﹒　maru / mors ﹒　ィ 💗
