@@ -1,10 +1,9 @@
 
 <div>
-  <img align="right" width="25%" src="">
 </div>
 
 <p align="center">
-    <img width="25%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/tumblr_c62a452d4d58863193a04a7e37263bea_b8854ec9_400.gif">
+    <img width="100%" src="https://file.garden/ZwCpeSoEK1ZwoQvU/tumblr_c62a452d4d58863193a04a7e37263bea_b8854ec9_400.gif">
 </p>
 
   　　﹒೨ 💉 ۫ ﹒　maru / mors ﹒　ィ 💗
